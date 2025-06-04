@@ -1,9 +1,13 @@
 <p align="left">
+<img src="https://files.catbox.moe/nqn299.gif"><br>
 <img src="https://files.catbox.moe/xny1of.gif">
 <img src="https://files.catbox.moe/g17a4s.png">
 <img src="https://files.catbox.moe/r6aj84.webp">
 <br>
-<img src="https://files.catbox.moe/jg740x.gif">
+<img src="https://files.catbox.moe/iwie1q.gif">
+<img src="https://files.catbox.moe/fjd7d5.gif">
+<img src="https://files.catbox.moe/7ob4z9.gif" style="height: 20px;">
+<img src="https://files.catbox.moe/vca9xu.gif">
 </p>
 <p align="left">
 <b>JAMIE</b> or <i>jim</i> <img src="https://files.catbox.moe/dyrykf.png">
