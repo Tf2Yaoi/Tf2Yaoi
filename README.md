@@ -1,12 +1,11 @@
 <p align="left">
-<img src="https://files.catbox.moe/nqn299.gif"><br>
 <img src="https://files.catbox.moe/xny1of.gif">
 <img src="https://files.catbox.moe/g17a4s.png">
 <img src="https://files.catbox.moe/r6aj84.webp">
 <br>
 </p>
 <p align="left">
-<b>JAMIE</b> or <i>jim</i> <img src="https://files.catbox.moe/dyrykf.png">
+<b>JAMIE</b> or <i>john</i> <img src="https://files.catbox.moe/dyrykf.png">
 <br> <img src="https://files.catbox.moe/8tm0ub.gif" height="15px"> <i><u>01.23</u></i> he him <img src="https://files.catbox.moe/2pzizy.gif"> or <i>it its</i>
 <br> <b>ISFP-T</b> <img src="https://files.catbox.moe/qnvn3d.png" height="15px" width="15px"><img src="https://files.catbox.moe/wf7b5i.png" height="15px" width="15px">
 <br> no <u>dni</u>, I don't really care.
